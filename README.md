@@ -177,7 +177,7 @@ Alternativamente, descárgalos directamente desde [Stack Overflow](https://surve
 
 **Jose Luis Alonso** — [GitHub](https://github.com/jlalonsoredon)
 
-**Puedes ver la presentación en: https://gamma.app/docs/Analisis-Estrategico-del-Mercado-del-Software-en-Espana-20212026-27cbxqpq9hwu6dl?mode=doc
+**Puedes ver la presentación en: (https://analisis-estrategico-del-0njbe6k.gamma.site)
 
 ---
 
